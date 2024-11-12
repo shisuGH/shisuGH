@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @rhmq
-- 📫 How to reach me? via Discord @rhmq
+- 👋 Hi, I’m @shisu
+- 📫 How to reach me? via Discord @selfembed
 - 😄 Pronouns: he/him
 
 
